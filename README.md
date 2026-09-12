@@ -1,8 +1,9 @@
-<img width="1008" height="720" alt="image" src="https://github.com/user-attachments/assets/d8a78fb0-44c0-4833-a83f-7922fb46c371" />
+<img width="1000" height="919" alt="image" src="https://github.com/user-attachments/assets/3973617c-1533-4ca8-a6d1-c253d5398615" />
 
 
-𓎟𓎟      mari     ⌣     kitti       𓈒  e
-     e       ཻུ۪♡      she    ˙     her
+𓎟      mari     ⌣     kitti       𓈒  
+
+ཻུ۪♡      she    ˙     her
 
 
 _ _              //    ヤ .       19      ◟     ⨯
@@ -11,12 +12,12 @@ _ _              //    ヤ .       19      ◟     ⨯
 
 ⠀⠀⠀⠀⠀⠀ ࣪       ︵ֺ︵  ㅤ ㅤ𝜚      ۪ ⠀⠀ ⪩⪨
 ⠀⠀⠀⠀⠀⠀୧⠀⠀𓈒⠀⠀ ֺ    㞫     ࣭   ⠀﹙#n.1 gooner.﹚
-⠀⠀⠀⠀⠀⠀☆゙      ۪  ㅤlesbian      ࣪ ྀ      ࡛       polyamorous 🌸    𓂃
+⠀⠀⠀⠀⠀⠀☆゙      ۪  ㅤlesbian      ࣪ ྀ      ࡛       polyamorous 🍒    𓂃
 ⠀⠀⠀⠀⠀⠀爱    ࿁ ⠀ ˚⠀    ︩︪ ׅmbti.⠀⠀ ೀ⠀ ⠀ꞌꞋ ࣪ 
 
 
                                   ⿻   ೀ ⠀   ៸៸៸  ⠀꒰ᐢ. .ᐢ꒱   ♬  ꒱   
-                                言      unikitty lvr ¹⠀⠀/⠀⠀kinner ²   ֪ ◝
+                                言      charlie lvr ¹⠀⠀/⠀⠀kinner ²   ֪ ◝
 ⠀                          ꒷ ︶  i   ₒᵣ⠀𓏲𑁘 my   ◟  harem  𖹭  ͜    ‼
 
 
@@ -34,8 +35,5 @@ _ _              //    ヤ .       19      ◟     ⨯
 　　　　　( ᴗ ̫ ᴗ )　　⋌　　
 　﹒　
 
-<img width="1145" height="1200" alt="image" src="https://github.com/user-attachments/assets/cf9619aa-a3ce-4cf0-97df-c472ed86a510" />
-
+<img width="2000" height="2000" alt="image" src="https://github.com/user-attachments/assets/f0dd5d72-6742-4e8c-9e6e-8785ea44645f" />
     
-
-   
