@@ -18,7 +18,7 @@ _ _              //    ヤ .       19      ◟     ⨯
 
                                   ⿻   ೀ ⠀   ៸៸៸  ⠀꒰ᐢ. .ᐢ꒱   ♬  ꒱   
                                 言      charlie lvr ¹⠀⠀/⠀⠀kinner ²   ֪ ◝
-⠀                          ꒷ ︶  i   ₒᵣ⠀𓏲𑁘 my   ◟  harem  𖹭  ͜    ‼
+⠀                          ꒷ ︶  i 𓏲𑁘 my   ◟  harem  𖹭  ͜    ‼
 
 
 .
