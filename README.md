@@ -1,9 +1,10 @@
-<img width="1000" height="919" alt="image" src="https://github.com/user-attachments/assets/3973617c-1533-4ca8-a6d1-c253d5398615" />
+<img width="1533" height="1016" alt="image" src="https://github.com/user-attachments/assets/5883fbf4-be5c-4668-82ca-bdcc651c81c7" />
 
 
-𓎟      mari     ⌣     kitti       𓈒  
 
-ཻུ۪♡      she    ˙     her
+                         𓎟      mari     ⌣     mew       𓈒  
+
+                          ཻུ۪ ♡      she    ˙     her
 
 
 _ _              //    ヤ .       19      ◟     ⨯
@@ -12,12 +13,12 @@ _ _              //    ヤ .       19      ◟     ⨯
 
 ⠀⠀⠀⠀⠀⠀ ࣪       ︵ֺ︵  ㅤ ㅤ𝜚      ۪ ⠀⠀ ⪩⪨
 ⠀⠀⠀⠀⠀⠀୧⠀⠀𓈒⠀⠀ ֺ    㞫     ࣭   ⠀﹙#n.1 gooner.﹚
-⠀⠀⠀⠀⠀⠀☆゙      ۪  ㅤlesbian      ࣪ ྀ      ࡛       polyamorous 🍒    𓂃
+⠀⠀⠀⠀⠀⠀☆゙      ۪  ㅤlesbian      ࣪ ྀ      ࡛       polyamorous 🐾    𓂃
 ⠀⠀⠀⠀⠀⠀爱    ࿁ ⠀ ˚⠀    ︩︪ ׅmbti.⠀⠀ ೀ⠀ ⠀ꞌꞋ ࣪ 
 
 
                                   ⿻   ೀ ⠀   ៸៸៸  ⠀꒰ᐢ. .ᐢ꒱   ♬  ꒱   
-                                言      charlie lvr ¹⠀⠀/⠀⠀kinner ²   ֪ ◝
+                                言      mew mew lvr ¹⠀⠀/⠀⠀kinner ²   ֪ ◝
 ⠀                          ꒷ ︶  i 𓏲𑁘 my   ◟  harem  𖹭  ͜    ‼
 
 
@@ -32,8 +33,9 @@ _ _              //    ヤ .       19      ◟     ⨯
 
 　　　　　⌒  int! 　 　e　 　⟡
 
-　　　　　( ᴗ ̫ ᴗ )　　⋌　　
-　﹒　
+　　　mew mew x mad mew mew shippers int𓏲𑁘　　( ᴗ ̫ ᴗ )　　⋌　　
+　<img width="2048" height="1536" alt="image" src="https://github.com/user-attachments/assets/ae7abc49-824b-4470-9d9a-7970f6764359" />
 
-<img width="2000" height="2000" alt="image" src="https://github.com/user-attachments/assets/f0dd5d72-6742-4e8c-9e6e-8785ea44645f" />
+
+
     
