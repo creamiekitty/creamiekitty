@@ -4,7 +4,7 @@
 
 
 
-                         𓎟      mari     ⌣     mew       𓈒  
+                         𓎟      mari     ⌣     marie      𓈒  
 
                           ཻུ۪ ♡      she    ˙     her
 
@@ -20,7 +20,7 @@ _ _              //    ヤ .       19      ◟     ⨯ 🧼🌈 ⋆° 🍒🎀
 
 
                                   ⿻   ೀ ⠀   ៸៸៸  ⠀꒰ᐢ. .ᐢ꒱   ♬  ꒱   
-                                言      mew mew lvr ¹⠀⠀/⠀⠀kinner ²   ֪ ◝
+                                言      marie lvr ¹⠀⠀/⠀⠀kinner ²   ֪ ◝
 ⠀                          ꒷ ︶  i 𓏲𑁘 my   ◟  harem  𖹭  ͜    ‼
 
 
