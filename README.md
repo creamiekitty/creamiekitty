@@ -1,3 +1,6 @@
+<img width="690" height="388" alt="image" src="https://github.com/user-attachments/assets/4f662cfc-7f06-495a-9382-ecbdaf32a0d9" />
+
+
 
 
 
@@ -32,9 +35,10 @@ _ _              //    ヤ .       19      ◟     ⨯ 🧼🌈 ⋆° 🍒🎀
 
 　　　　　⌒  int! 　 　e　 　⟡
 
-　　　mew mew x mad mew mew shippers int𓏲𑁘　　( ᴗ ̫ ᴗ )　　⋌　　
-　<img width="2048" height="1536" alt="image" src="https://github.com/user-attachments/assets/ae7abc49-824b-4470-9d9a-7970f6764359" />
+　　　marie shippers int𓏲𑁘　　( ᴗ ̫ ᴗ )　　⋌　　
 
+
+<img width="720" height="900" alt="image" src="https://github.com/user-attachments/assets/b5380145-82d6-4dfa-a8a1-47d6de0918ed" />
 
 
     
